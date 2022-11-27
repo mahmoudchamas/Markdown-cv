@@ -2,7 +2,7 @@
 
 ## **Bachelor’s Degree in computer science**
 
-![](mahmoudchamas.jpg)
+
 
 ```
 Email: mahmoudchamas47@gmail.com
