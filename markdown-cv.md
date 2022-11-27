@@ -49,6 +49,11 @@ csb academy ghubairi.
 - 2021 : specialisation in computer maintenance and repair
 (A+) from csb academy ghubairy.
 
+**training**
+- 2018 - 2019: Training in the information department ,
+karrefour city center , Hazmiyeh
+- 2022 : Completed one month IT help desk training at IT
+department at Aubmc .
 
 **Languages**
 - Arabic – Native
